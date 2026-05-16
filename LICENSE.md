@@ -1,4 +1,4 @@
-# 
+# ultimate Shotcut for PC | Shotcut for Windows Transition | export-presets + real-time-preview offers the most advanced Shotcut for PC | Shotcut for Windows transition, with
 
 
 
